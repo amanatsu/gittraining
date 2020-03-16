@@ -1,2 +1,2 @@
 readme! please!
-thank you!
+japanese/english/chinese website
